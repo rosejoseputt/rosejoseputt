@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @rosejoseputt
+- 👀 I’m interested in coding and robotics
+- 🌱 I’m currently learning Engineering
+- 💞️ I’m looking to collaborate on .. (might be a bit underskilled to collaborate)
+- 📫 How to reach me ...
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: been to 4 out of 5 continents.
